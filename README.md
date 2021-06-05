@@ -1,2 +1,0 @@
-# ahmadpaull
-Petanikode.github.io
